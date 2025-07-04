@@ -14,7 +14,7 @@ I believe in breaking things *ethically* to understand them better.
 
 ## 🧩 Let's Connect
 
-- GitHub: [github.com/TakeItEz](https://github.com/TakeItEz)
+- GitHub: [github.com/TakeItEz](https://github.com/TakeItEz-Dev/writeups)
 - New writeups added regularly — watch the repo or drop a star ⭐ if you find it useful.
 
 ---
