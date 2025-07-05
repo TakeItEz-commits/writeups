@@ -10,8 +10,7 @@ I believe in breaking things *ethically* to understand them better.
 
 🛡️ Always learning. Always leveling up.
 
-![ChatGPT Image Jul 4, 2025, 04_31_14 PM](https://github.com/user-attachments/assets/376c4d51-7e6d-42da-ad26-8f99ac07c68b)
-
+![ChatGPT Image Jul 4, 2025, 04_31_14 PM (1)](https://github.com/user-attachments/assets/52a95d0b-0fac-45a9-94da-b57906951f7d)
 
 ---
 
