@@ -10,6 +10,8 @@ I believe in breaking things *ethically* to understand them better.
 
 🛡️ Always learning. Always leveling up.
 
+![Image Jul 4, 2025, 04_31_14 PM](https://github.com/user-attachments/assets/9ebb9aef-2e84-4dc4-a3b1-623cd87bd3d9)
+
 ---
 
 ## 🧩 Let's Connect
